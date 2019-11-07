@@ -2,6 +2,9 @@
 
 ![](boss.gif)
 
-- Nerdy - Nayi + Kardi ( yav sandhi)
+- Nerdy
 - Finding bride
 
+- Twisting words (shetty -> pulty; sun rise -> sun set)
+- Contractor jokes (1947)
+- That guy this guy
