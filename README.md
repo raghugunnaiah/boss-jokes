@@ -2,6 +2,6 @@
 
 ![](boss.gif)
 
-- Nerdy
+- Nerdy - Nayi + Kardi ( yav sandhi)
 - Finding bride
 
